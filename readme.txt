@@ -1,1 +1,1 @@
-Moi c'est le deuxiäme fichier 
+Moi c'est le deuxi√®me fichier 
